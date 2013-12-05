@@ -1,0 +1,32 @@
+@rtgarden life
+===============
+
+- 10/21/1963 Born
+- 1967-1975 folk dancing performing with AMAN!
+- ~ 1968 studying New Games
+- 09/1974 began playing Clarinet 4th grade
+- 04/1976-2013 Joined Renaissance Faire community began studying improv
+- 1976 street performer hired by Peg Long part of Washerwomen southern Faire
+- 1976 began vaudeville stage managing, main stage Southern Faire trained by Terry Collier.
+- 1977 helped found "Mongers" street group at Southern Renaissance Faire with Glad Pickering.
+- 1978 Stage Manager of Maypole Commons at Southern Faire, theatre in the round.
+- 1979 Mountebank Stage stage manager Southern Faire, began producing fly by night nightshows
+- 1979-1982 Innyard Stage Manager Northern Faire
+- 1980 began producing fly by night events with Fools Guild in Hollywood.
+- 1982 Fools Guild Summer of Fun. Workshops, performances, parties.
+- 07/01/1983 Appolonia Coan born
+- 1985 studied painting formally with Robert Donovan Thomas (psychedelic artist for the Greatful Dead)
+- 02/1986 moved to Southern Humboldt 
+- 1988 began studying computer graphics at College of the Redwoods
+- 1988 first PC 286 
+- 1988 joined "The Well" sausalito online communitysa
+- 1990 Humbodt State University as a Pre-Med student
+- 1991 began working on "multimedia Presentation of Scientific Concepts" interdisciplinary degree.
+- 01/31/1991 Luc Willims born
+- 1996 left Humboldt for sabbatical, left degree open so it could be changed later.
+- 1996 moved from N HUmboldt to S Humboldt "2nd Generation Back to the Land"
+- 11/2011 together with Michael Koster begin "RHV" virtualized robot hippie valet
+- 5/2012 together began ABRACADABRA studio 321 2nd st Eureka 
+- 12/12/12 first #OSIOT meetup
+- 
+- 
