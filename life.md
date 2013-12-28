@@ -2,6 +2,8 @@
 ===============
 
 - 10/21/1963 Born
+- 1965 adopted/brought back to family
+- 1966 finalized other adoption by Avery family, my uncle and his wife
 - 1967-1975 folk dancing performing with AMAN!
 - ~ 1968 studying New Games
 - 09/1974 began playing Clarinet 4th grade
@@ -20,21 +22,26 @@
 - 1988 began studying computer graphics at College of the Redwoods
 - 1988 first PC 286 
 - 1988 joined "The Well" sausalito online communitysa
+- 1990 Valedictorian of CR graduation, AS in bio chemistry
 - 1990 Humbodt State University as a Pre-Med student
-- 1991 began working on "multimedia Presentation of Scientific Concepts" interdisciplinary degree.
+- 1991 began working on "Multimedia Presentation of Scientific Concepts" interdisciplinary degree.
 - 01/31/1991 Luc Willims born
 - 1996 left Humboldt for sabbatical, left degree open so it could be changed later.
 - 1996 moved from N HUmboldt to S Humboldt "2nd Generation Back to the Land"
 - 1998 fly by night "pirate420 class" at Lark in the Morning. Begin summer cam project
 - 2000 fly by night "fiddle and banjo contest" with Will Spires at Sweetsmill.
 - 2003 hiphop420 class both summer camps
+- 2003 Be a Bruno camp. producer.
+- 2008 Superstruct Game top 5 players
+- 2010 HIpHop420 at Lark Camp
 - 2011 ended summer camp project
 - 11/2011 together with Michael Koster begin "RHV" virtualized robot hippie valet
-- 05/2012 together began ABRACADABRA studio 321 2nd st Eureka 
+- 05/2012-5/2013 together began ABRACADABRA studio 321 2nd st Eureka 
 - 07/2012-~ began studio inquiry into several IOT projects
 - orbs * peggy 2 monocolor * peggy2 multicolor
 - exploring the idea of ambient lighting and online tracking.
 - 12/12/12 first #OSIOT meetup
+- 4/2013 Sunnyvale studio
 - 02/2013-9/2013 osiot.org or defacto consortium.
 - 11/2013-~ connectIOT
-- 
+- 12/2013 minecraft academy
