@@ -30,9 +30,13 @@
 - 1996 moved from N HUmboldt to S Humboldt "2nd Generation Back to the Land"
 - 1998 fly by night "pirate420 class" at Lark in the Morning. Begin summer cam project
 - 2000 fly by night "fiddle and banjo contest" with Will Spires at Sweetsmill.
+- 02/09/2002 215 jail
 - 2003 hiphop420 class both summer camps
 - 2003 Be a Bruno camp. producer.
+- 2007 TBI attacked in so hum
+- 2007 second life and metaverse
 - 2008 Superstruct Game top 5 players
+- 2009 catherders ball event
 - 2010 HIpHop420 at Lark Camp
 - 2011 ended summer camp project
 - 11/2011 together with Michael Koster begin "RHV" virtualized robot hippie valet
@@ -45,3 +49,5 @@
 - 02/2013-9/2013 osiot.org or defacto consortium.
 - 11/2013-~ connectIOT
 - 12/2013 minecraft academy
+- 3/2014 studio and house moved to sunnyvale
+- 
