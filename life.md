@@ -2,13 +2,14 @@
 ===============
 
 - 10/21/1963 Born in Pasadena California at St Josephs.
-- 1963 adopted by family of bio mothers friend, at 6 mos returned. No knwledge of name.
+- 1963 adopted by family of bio mothers friend, at 6 mos returned. No knowledge of name.
 - 1965 adopted/brought back to family.Re-named Gwynth 
 - 1966 finalized other adoption by Avery family, birth mothers older brother and his wife
 - 1966 re-named Kathleen
+- 1967-1969  study Ballet
 - 1967-1975 folk dancing performing with AMAN!
 - ~ 1968 studying New Games
-- 09/1974 began playing Clarinet 4th grade Harry Leff prof.
+- 09/1974-1978  playing Clarinet Harry Leff prof.
 - 04/1976-2013 Joined Renaissance Faire community began studying improv
 - 1976 street performer hired by Peg Long part of Washerwomen southern Faire Director Laurie Rose
 - 1976 began vaudeville stage managing, main stage Southern Faire trained by Terry Collier.
