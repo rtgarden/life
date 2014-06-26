@@ -1,24 +1,27 @@
 @rtgarden life
 ===============
 
-- 10/21/1963 Born
-- 1965 adopted/brought back to family
-- 1966 finalized other adoption by Avery family, my uncle and his wife
+- 10/21/1963 Born in Pasadena California at St Josephs.
+- 1963 adopted by family of bio mothers friend, at 6 mos returned. No knwledge of name.
+- 1965 adopted/brought back to family.Re-named Gwynth 
+- 1966 finalized other adoption by Avery family, birth mothers older brother and his wife
+- 1966 re-named Kathleen
 - 1967-1975 folk dancing performing with AMAN!
 - ~ 1968 studying New Games
-- 09/1974 began playing Clarinet 4th grade
+- 09/1974 began playing Clarinet 4th grade Harry Leff prof.
 - 04/1976-2013 Joined Renaissance Faire community began studying improv
-- 1976 street performer hired by Peg Long part of Washerwomen southern Faire
+- 1976 street performer hired by Peg Long part of Washerwomen southern Faire Director Laurie Rose
 - 1976 began vaudeville stage managing, main stage Southern Faire trained by Terry Collier.
-- 1977 helped found "Mongers" street group at Southern Renaissance Faire with Glad Pickering.
-- 1978 Stage Manager of Maypole Commons at Southern Faire, theatre in the round.
-- 1979 Mountebank Stage stage manager Southern Faire, began producing fly by night nightshows
+- 1977 helped found "Mongers" street group at Southern Renaissance Faire with Glad Pickering, Donna Moran
+- 1978 Stage Manager of Maypole Commons at Southern Faire, theatre in the round. 
+- 05/1978 First worked with Adam Long "Pyramus and Thisbee",
+- 05/1979 Mountebank Stage stage manager Southern Faire, began producing fly by night nightshows
 - 1979-1982 Innyard Stage Manager Northern Faire
 - 1980 began producing fly by night events with Fools Guild in Hollywood.
 - 1982 Fools Guild Summer of Fun. Workshops, performances, parties.
 - 07/01/1983 Appolonia Coan born
 - 1985 studied painting formally with Robert Donovan Thomas (psychedelic artist for the Greatful Dead)
-- 02/1986 moved to Southern Humboldt 
+- 02/1986 moved to Southern Humboldt from West LA
 - 1988 began studying computer graphics at College of the Redwoods
 - 1988 first PC 286 
 - 1988 joined "The Well" sausalito online communitysa
