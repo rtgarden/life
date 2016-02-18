@@ -54,4 +54,5 @@
 - 11/2013-~ connectIOT
 - 12/2013 minecraft academy
 - 3/2014 studio and house moved to sunnyvale
+- 10/10/2014 #OSIOT pivot
 - 
