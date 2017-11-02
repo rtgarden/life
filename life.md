@@ -3,7 +3,7 @@
 
 - 10/21/1963 Born in Pasadena California at St Josephs.
 - 1963 adopted by family of bio mothers friend, at 6 mos returned. No knowledge of name.
-- 1965 adopted/brought back to family.Re-named Gwynth 
+- 1965 adopted/brought back to family.Re-named Gwynth Schill
 - 1966 finalized other adoption by Avery family, birth mothers older brother and his wife
 - 1966 re-named Kathleen
 - 1967-1969  study Ballet
@@ -19,7 +19,7 @@
 - 05/1979 Mountebank Stage stage manager Southern Faire, began producing fly by night nightshows
 - 1979-1982 Innyard Stage Manager Northern Faire
 - 1980 began producing fly by night events with Fools Guild in Hollywood.
-- 1982 Fools Guild Summer of Fun. Workshops, performances, parties.
+- 1982 Fools Guild Summer O Fun. Workshops, performances, parties.calendars mar lewis final performance
 - 07/01/1983 Appolonia Coan born
 - 1985 studied painting formally with Robert Donovan Thomas (psychedelic artist for the Greatful Dead)
 - 02/1986 moved to Southern Humboldt from West LA
@@ -55,4 +55,8 @@
 - 12/2013 minecraft academy
 - 3/2014 studio and house moved to sunnyvale
 - 10/10/2014 #OSIOT pivot
+-10/10/2014 #OSIOT inquiry towards connected systems
+-02/015/2016 church of david bowie 
+
+
 - 
